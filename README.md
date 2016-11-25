@@ -1,0 +1,2 @@
+# furiuz.github.io
+Blog
